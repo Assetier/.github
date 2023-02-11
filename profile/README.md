@@ -1,1 +1,1 @@
-[![Assetier](https://user-images.githubusercontent.com/827338/218170729-b8fb799b-c88c-4272-ac9f-5a586b4fe26f.png)](https://www.assetier.design)
+[![Assetier](https://user-images.githubusercontent.com/827338/218281569-bf49805c-df71-4ece-a79b-be6c5d9c05de.png)](https://www.assetier.design)
